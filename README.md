@@ -1,0 +1,1 @@
+# TIET-SS-MiniProject-24-Resizeto50Percent
